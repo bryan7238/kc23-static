@@ -8,7 +8,7 @@ For more information about events or to volunteer, please email [info@kc23.org](
 
 ## Quick Links
 
-- 📝 Members — Record your service hours
+- 📝 Members — [Record your service hours](/service)
 - Purchase a Guardian Angels Walkway Memorial Paver
 - 🌐 [List and map of Southwest Florida Knights of Columbus Councils (Google Maps)](https://www.google.com/maps)
 - About Us — Learn about the Knights of Columbus and our council
